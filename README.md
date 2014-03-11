@@ -15,4 +15,4 @@ Install instructions:
 
 5) Enjoy! 
 
-Please send any feedback or comments to uberlieder@gmail.com
+Please send any feedback or comments to jonathanaherne@gmail.com
